@@ -1,4 +1,4 @@
-# Clean Media
+# Carisma
 I had to say it only one thing, I got a goal in my mind, To connect People and Technology in a way there will be peace, beauty and power between technology and people just like you and me.
 
 I said to that thing that, It is all about to connect the people with the Social Media in a way that we humans can't think of, In a way there will be no Addictions on the Social media, No Bullying, A Safe Place where we can breathe in peace and breathe off freedom.
