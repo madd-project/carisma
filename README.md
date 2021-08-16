@@ -53,7 +53,7 @@ This came into the Head Very Recently, When I was seeing the video of,
 ![Screenshot 2021-07-10 at 16-55-11 Social Media is Destroying Us - Joe Rogan Elon Musk - YouTube](https://user-images.githubusercontent.com/64954854/125161603-e650bd00-e1a0-11eb-9746-770a77e789f4.png)
 
 
-<h1><i>Just For You, "You can get the monkey get off the back, but the circus never leaves the town"</i></h1>
+<h1><i>"You can get the monkey get off the back, but the circus never leaves the town" We can End these though.</i></h1>
 
 You are always be respected if you can contribute, You can Message me. 
 
